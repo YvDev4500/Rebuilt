@@ -60,4 +60,8 @@ And at sixteen, we're too old for this. i didn't say.
   "Ask whether Jude will ever like you back."
   Claire's voice was innocent, but i knew better. My cheeks
 flamed, but i stifled the urge to snap at her and laughed it off.
-to be continued---
+"Can i ask it for a car? Is this like a dead Santa scenario?"
+  "Actually, since it's my birthday, i'm going first." Rachel put
+her fingers on the piece. Claire and i followed her.
+  "Oh! Rachel, ask it how you're going to die." 
+  Rachel -----
