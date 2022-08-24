@@ -64,4 +64,24 @@ flamed, but i stifled the urge to snap at her and laughed it off.
   "Actually, since it's my birthday, i'm going first." Rachel put
 her fingers on the piece. Claire and i followed her.
   "Oh! Rachel, ask it how you're going to die." 
-  Rachel -----
+  Rachel squealed her assent, and i shot a dark look at 
+Claire. Since moving here six months ago, she'd latched 
+onto my best friend like a staving leech. Her twin mis-
+sions in life were now to make me feel like the third wheel,
+and to torture me for my crush on her brother, Jude. I was 
+equally sick of both.
+  "Remember not to push," Claire ordered me.
+  "Got it, thanks. Anything else?"
+  But Rachel interrupted us before we coould descend into 
+bickering. "How am i going to die?"
+  The three of us watched the board. My calves prickled 
+from kneeling on Rachel's carpet for so long, and the backs of
+my knees falt clammy. Nothing happened.
+  Then something did. We looked at each other as the piece 
+  
+Page-3
+
+moved under our hands. It semi-circled the board, sailing past 
+A through K, and crept past L.
+  it settled on M.
+  ---not today
